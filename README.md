@@ -1,1 +1,3 @@
 # 1st-real-project
+just starting in 3 2 1...
+0
